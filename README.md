@@ -1,2 +1,2 @@
 # Inventory
-- Link tải phần mềm: https://bit.ly/3tFLEZA
+- Link tải phần mềm: https://sangche.vn/lap-trinh-ung-dung
